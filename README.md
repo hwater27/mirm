@@ -1,3 +1,3 @@
 # Microstate Response Model
 
-<img width="1190" height="396" alt="alpha_evolution_item59_fixed" src="https://github.com/user-attachments/assets/39053612-9194-466e-aa64-ac921a9c2a7b" />
+<img width="2340" height="792" alt="dip_math42_story" src="https://github.com/user-attachments/assets/869d0640-6381-4add-9ec0-d0b18f18856d" />
